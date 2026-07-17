@@ -1,4 +1,4 @@
-Hi there 👋 I'm Rithik R Nambiar! 
+Hi there 👋 I'm Rithik! 
 
 [Google Scholar](https://scholar.google.com/citations?user=RLRSFkAAAAAJ&hl=en&authuser=1) | [LinkedIn](https://www.linkedin.com/in/rithik-r-nambiar/)
 
